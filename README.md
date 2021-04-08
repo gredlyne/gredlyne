@@ -1,0 +1,1 @@
+My name is Gredlyne. I was born and raised in Haiti. I speak about 4 languages . I have a BS in Biochemistry. I love reading, listening to music, cooking and binge watching documentaries. I also love to learn new things so I am currently learning how to develop/create website under Reskill American. My goal is proficient programmer / coder.
